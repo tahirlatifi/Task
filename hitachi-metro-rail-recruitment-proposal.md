@@ -1,113 +1,62 @@
 # Recruitment Proposal for Hitachi Metro and Rail
 
-## 1. Executive Summary
+**Prepared for:** Hitachi Metro and Rail
 
-This proposal outlines a general recruitment support service for Hitachi Metro and Rail. Because no specific job description has been provided, the approach is designed to support a broad range of metro, rail, engineering, operations, maintenance, project delivery, commercial, and corporate hiring requirements.
+**Prepared by:** Seed Group
 
-Our objective is to provide Hitachi Metro and Rail with a flexible recruitment partnership that can quickly adapt to confirmed vacancies, role requirements, locations, seniority levels, and hiring priorities as they are shared.
+**Website:** seedgroup-sa.com
 
-## 2. Proposed Recruitment Support
+## 1. Proposal Overview
 
-We propose to support Hitachi Metro and Rail across permanent recruitment needs, including but not limited to:
+Seed Group is pleased to submit this recruitment proposal to support Hitachi Metro and Rail with qualified metro, rail, engineering, operations, maintenance, project delivery, commercial, and corporate resources. As no specific job description has been provided by Hitachi Metro and Rail at this stage, Seed Group will provide general recruitment support that can be aligned to confirmed vacancies once role requirements are shared.
 
-- Rail and metro operations roles
-- Engineering and technical roles
-- Rolling stock, signalling, systems, and infrastructure specialists
-- Project management and project controls roles
-- Maintenance, safety, quality, and compliance roles
-- Procurement, commercial, finance, HR, and administrative roles
-- Leadership, supervisory, and specialist professional roles
+The purpose of this proposal is to define the recruitment scope, service approach, commercial terms, and approval section for both parties.
 
-For each vacancy, we will align with Hitachi Metro and Rail on the role profile, candidate requirements, salary range, location, notice period expectations, and interview process before beginning sourcing activity.
+## 2. Recruitment Scope
 
-## 3. Recruitment Methodology
+Seed Group will recruit candidates for general metro and rail-related requirements, including:
 
-### Requirement Intake
+- Metro, rail, operations, and maintenance resources
+- Engineering, technical, systems, signalling, and rolling stock resources
+- Project management, commercial, procurement, finance, HR, and administrative resources
 
-We will hold an initial briefing for each role to clarify:
+Candidates will be assessed against the agreed requirements shared by Hitachi Metro and Rail, including:
 
-- Job title, department, and reporting line
-- Key responsibilities and essential experience
-- Required qualifications, certifications, and technical skills
-- Location, work pattern, and travel requirements
-- Salary range, benefits, and target start date
-- Interview stages and decision makers
+- Relevant metro, rail, infrastructure, engineering, operational, or corporate experience
+- Required technical knowledge, qualifications, certifications, or professional background
+- Strong communication, coordination, and stakeholder management skills
+- Suitability for the required location, work pattern, travel expectations, and notice period
+- Salary expectations aligned with Hitachi Metro and Rail's approved budget
+- Professionalism, reliability, teamwork, and cultural fit
 
-### Candidate Sourcing
+## 3. Seed Group Recruitment Support
 
-Candidate sourcing will be conducted through a combination of:
+Seed Group will provide end-to-end recruitment coordination, including:
 
-- Existing candidate networks
-- Direct search and headhunting
-- Rail, metro, infrastructure, and engineering talent pools
-- Professional platforms and recruitment databases
-- Referrals and targeted market mapping
-
-### Screening and Shortlisting
-
-All candidates submitted to Hitachi Metro and Rail will be screened for:
-
-- Relevant experience and technical suitability
-- Motivation for the role and interest in Hitachi Metro and Rail
-- Salary expectations and notice period
-- Location suitability and availability
-- Communication skills and professional fit
-- Right-to-work status, where applicable
-
-### Interview Coordination
-
-We will support the interview process by:
-
-- Coordinating interview availability
-- Briefing candidates before interviews
-- Gathering and sharing feedback after each stage
-- Supporting offer discussions and candidate engagement
-- Helping reduce drop-off risk during the hiring process
+1. Understanding Hitachi Metro and Rail's hiring requirements, role expectations, and candidate profile.
+2. Sourcing candidates through suitable recruitment channels and targeted market search.
+3. Conducting initial screening for experience, technical suitability, communication skills, and role fit.
+4. Shortlisting and sharing candidate profiles with Hitachi Metro and Rail.
+5. Coordinating interviews, candidate communication, and follow-up until final selection and joining.
 
 ## 4. Commercial Terms
 
-The recruitment fee for successful placements will be:
+Seed Group's recruitment service fee will be **5% of the selected candidate's annual gross salary**.
 
-**5% of the candidate's annual gross salary**
+This fee will apply only to candidates successfully selected and hired by Hitachi Metro and Rail through Seed Group recruitment support. The final payable amount will be calculated based on the annual gross salary agreed between Hitachi Metro and Rail and the selected candidate.
 
-This fee will apply only when a candidate introduced by us is successfully hired by Hitachi Metro and Rail.
+## 5. Approval and Acceptance
 
-Unless otherwise agreed in writing, the fee will be calculated based on the candidate's confirmed annual gross salary at the time of offer acceptance. The annual gross salary excludes bonuses, allowances, commissions, benefits, employer contributions, relocation costs, and any other non-salary payments.
+By signing below, both parties confirm their acceptance of the recruitment scope and commercial terms stated in this proposal.
 
-## 5. Payment Terms
+| For Seed Group | For Hitachi Metro and Rail |
+| --- | --- |
+| Name: __________________________ | Name: __________________________ |
+| Designation: ___________________ | Designation: ___________________ |
+| Signature: _____________________ | Signature: _____________________ |
+| Date: __________________________ | Date: __________________________ |
+| Company Stamp / Seal: __________ | Company Stamp / Seal: __________ |
 
-An invoice will be raised upon the candidate's confirmed start date, unless otherwise agreed in writing. Payment terms can be aligned with Hitachi Metro and Rail's preferred supplier or finance process.
+## 6. Next Steps
 
-## 6. Replacement Support
-
-If a placed candidate leaves within an agreed guarantee period, we can provide replacement recruitment support for the same role, subject to mutually agreed terms and conditions.
-
-## 7. Information Required from Hitachi Metro and Rail
-
-To begin recruitment activity effectively, Hitachi Metro and Rail should provide the following information for each vacancy:
-
-- Job title and department
-- Job description or summary of duties
-- Required skills, experience, and qualifications
-- Salary range and benefits information
-- Work location and work pattern
-- Reporting structure
-- Interview process and expected timelines
-- Any mandatory compliance or background-check requirements
-
-If a full job description is not available, we can proceed using a role briefing call and a short written summary of requirements.
-
-## 8. Benefits to Hitachi Metro and Rail
-
-This recruitment partnership will provide:
-
-- Flexible support across multiple role types
-- Access to active and passive rail, metro, and infrastructure candidates
-- Reduced internal sourcing workload
-- Shortlisted candidates aligned to agreed requirements
-- Clear and competitive commercial terms
-- A success-based recruitment fee of 5% of annual gross salary
-
-## 9. Conclusion
-
-We would be pleased to support Hitachi Metro and Rail with general recruitment services across current and future hiring needs. Once specific vacancies are confirmed, we can begin role briefings, sourcing, screening, and shortlisting candidates in line with Hitachi Metro and Rail's hiring priorities.
+Upon approval of this proposal, Seed Group will begin sourcing and screening candidates in line with the general recruitment requirements and hiring priorities shared by Hitachi Metro and Rail.
